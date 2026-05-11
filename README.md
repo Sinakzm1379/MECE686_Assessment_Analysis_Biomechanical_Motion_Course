@@ -1,0 +1,1 @@
+# MECE686_Assessment_Analysis_Biomechanical_Motion_Course
